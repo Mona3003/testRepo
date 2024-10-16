@@ -8,3 +8,8 @@ fix3
  fix1 ne poyavilsa v vscode
  
 fix2
+ remember: discipline and motivation - all you need
+ what is the problem hier?
+ i dont understand
+ 
+ 
